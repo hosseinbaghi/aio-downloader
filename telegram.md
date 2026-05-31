@@ -7,6 +7,236 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 01:29
+---
+
+## VahidOOnLine — post 243120
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243120_1780264782.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش «امتداد»، مسعود پیاهو، عکاسی که تصویر نشستن یک معترض مقابل نیروهای سرکوب جمهوری اسلامی را در دی‌ماه ۱۴۰۴ ثبت کرده بود، به «همکاری با اسرائیل» متهم و به «۱۰ سال حبس» محکوم شد؛ حکمی که در شعبه ۹ دیوان تایید شده و به اجرای احکام رفته است. براساس اعلام حسن آقاخانی، وکیل مسعود پیاهو، او این فیلم کوتاه را به صورت ناخودآگاه ضبط کرده و بدون قصد انتشار، صرفا برای تعداد محدودی از دوستانش در روایتگر خصوصی اینستاگرام منتشر کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243119
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243119_1780264783.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزیر دادگستری لبنان روز یکشنبه، ۱۰ خردادماه، در گفتگوی اختصاصی با «العربیه» با انتقاد شدید از عملکرد نظامی حزب‌الله اعلام کرد: «حزب‌الله لبنان را به جنگ‌هایی می‌کشاند که خود انتخاب نکرده است و با شلیک ۶ موشک، جنگ همه‌جانبه را به کشور بازگرداند. اکنون زمان آن فرا رسیده است که این گروه به ماجراجویی‌های خود پایان دهد و از گزینه دولت حمایت کند. چرا که سلاح حزب‌الله به بهانه‌ای برای تهاجم به لبنان تبدیل شده است.» او با تاکید بر ضرورت خلع سلاح این گروه افزود: «حزب‌الله باید سلاح خود را به دولت تحویل دهد و این به معنای تسلیم شدن نیست. اگر حزب‌الله سلاحش را تحویل دهد، دولت در مذاکرات قوی‌تر خواهد بود، در حالی که در وضعیت فعلی، این گروه توانایی دولت برای مذاکره از موضع قدرت را مختل کرده است. حزب‌الله پیش از این نیز لبنانی‌ها را در سوریه قربانی کرد و نبردها را صرفا در راستای منافع خود پیش می‌برد. در حال حاضر دیپلماسی مناسب‌ترین راه است».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243118
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مهدی تاج، رئیس فدراسیون فوتبال ایران، روز یکشنبه در پاسخ به نگرانی‌ها درباره صدور ویزای بازیکنان تیم ملی فوتبال برای سفر به آمریکا گفت: «میزبان ما فیفا است و فیفا در واقع مسئول برگزاری مسابقات و از نظر ما مسئول دادن ویزا است، نه دولت آمریکا. چرا که وقتی کشوری می‌خواهد میزبانی را عهده‌دار شود، متعهد به انجام یک‌سری کارها می‌شود که یکی از آن‌ها صادر کردن ویزا است و باید این حداقل‌های قانونی را رعایت و مراعات کنند. من خودم امیدوارم با توجه به مسئولیتی که فیفا پذیرفته و صحبت‌های رخ‌به‌رخی که ما از نزدیک با مسئولین فیفا داشته‌ایم، این کار اتفاق بیفتد و مشکلی در این زمینه وجود نداشته باشد.»
+همزمان، عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، در گفتگو با خبرگزاری صداوسیما با اشاره به آخرین وضعیت صدور ویزا برای اعضای تیم ملی فوتبال ایران گفت: «دیروز [شنبه] دوستان ما در ترکیه با سفارت مکزیک تماس‌های نزدیکی داشتند. سفارت مکزیک در آنکارا از انگشت‌نگاری [اعضای تیم ملی] صرف‌نظر کرده و بنابر هماهنگی قرار شد به گونه‌ای جلو برود که همه ویزاها صادر بشود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13108
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش‌ها از حمله پهپادی ایران به گروه های مخالف ایرانی-کرد در نزدیکی اربیل، شمال عراق!
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342461
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+New York City's annual Israel Day parade went on without its mayor.
+
+Zohran Mamdani skipped the event due to his stance toward Israel, breaking a decades-long tradition of New York City mayors attending the celebration.
+
+As thousands packed Fifth Avenue waving Israeli flags, Gov. Kathy Hochul, Sen. Chuck Schumer, Attorney General Letitia James, and New York Republican gubernatorial candidate Bruce Blakeman all took part.
+
+Mamdani's absence quickly became a political flashpoint, with critics accusing Mamdani of turning his back on New York's Jewish community amid record levels of antisemitism.
+</div>
+
+## pm_afshaa — post 91975
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91975_1780264783.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قائم‌مقام، معاون راهبردی پزشکیان:
+بیش از 56 درصد مردم حداقل یک بار در تجمعات شبانه شرکت کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5194
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5194_1780264784.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝
+⭕️ براساس اطلاعات دریافتی در جنگ ۴۰ روزه، بخشی از حملات موشکی و پهپادی به اسرائیل، اقلیم کردستان عراق و اردن توسط گروه ۸۴۰ موشکی نیروی زمینی ارتش انجام شد. ستاد فرماندهی این گروه در کاشان مستقر است.
+این در حالیست که دونالد ترامپ به «فاکس نیوز» گفت،«شاید شنیدن این موضوع برای خیلی‌ها تعجب‌آور باشد، اما اینکه در جنگ‌ها همه چیز را نابود کنی، اشتباه است، چرا که بعد کشوری داری که تا ۴۰ سال هم قادر به بازسازی خود نخواهد بود.»
+او با اشاره به جنگ عراق، آن را نمونه‌ای از رویکرد اشتباه آمریکا در درگیری‌های گذشته دانست و گفت: «به عراق نگاه کنید؛ ما خیلی بد عمل کردیم، آن کار یک اشتباه بزرگ بود.»
+ترامپ همچنین عنوان کرد آمریکا ارتش ایران را «تا حدی به حال خود گذاشته»، چون به گفته او این ارتش «تا اندازه‌ای میانه‌رو» است و واشنگتن نمی‌خواسته همه ساختار نظامی کشور را نابود کند.
+
+#جنگ۴۰روزه
+@DEJradio
+</div>
+
+## DEJradio — post 5193
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️🕘 خبر ۲۱
+یکشنبه ۱۰ خرداد ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## IranIntlTV — post 339945
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339945_1780264784.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «اختلاف میان پزشکیان و فرماندهان سپاه بر سر دو موضوع اصلی است؛ نحوه اداره داخلی کشور و چگونگی مواجهه با آمریکا و اسرائیل. در حالی که برخی چهره‌ها مانند قالیباف به رویکرد توافق و حفظ نظام نزدیک‌تر توصیف می‌شوند، بخشی از فرماندهان سپاه بر ادامه مسیر تقابل و جنگ تاکید دارند، فارغ از پیامدهای آن.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339944
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339944_1780264786.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «پزشکیان از ناتوانی در اداره کشور به دلیل دخالت‌های سپاه گلایه کرده، اما فرماندهان سپاه که بر بخش‌های اصلی قدرت مسلط شده‌اند حاضر به پذیرش این انتقادها نیستند. برای مردمی که جمهوری اسلامی را نمی‌خواهند، تشدید اختلافات در راس حکومت نشانه‌ای از تضعیف بیشتر نظام و درگیری میان دو جناحی تلقی می‌شود که هر دو متهم به ظلم علیه مردم هستند.»
+@iranintltv
+</div>
+
+## FarsiVOA — post 219213
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ادامه راکت‌پرانی‌های حزب‌الله به شمال اسرائيل هم‌زمان با تلاش‌های دولت لبنان برای ادامه مذاکرات صلح
+
+▪️رسانه‌های اسرائیلی از ادامه حملات راکتی گروه تروریستی حزب‌الله به شمال اسرائيل خبر می‌دهند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8155833.html
+@FarsiVOA
+</div>
+
+## BBCPersian — post 282516
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282516_1780264786.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+در ماه‌های اخیر گزارش‌های متعددی از کمبود دارو در ایران منتشر شده است. به گفته وحید شریعت، رئیس انجمن روانپزشکی ایران، داروهای حیاتی روانپزشکی از جمله داروهای مرتبط با افسردگی، دوقطبی و اسکیزوفرنی با کمبود مواجه شده‌اند و در صورت ادامه روند فعلی، این وضعیت می‌تواند در ماه‌های آینده تشدید شود.
+
+دکتر کیانا کثیری در برنامه رادیویی جام جهان‌نمای بی‌بی‌سی فارسی درباره پیامدهای خطرناک کمبود داروهای روانپزشکی گفت.
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390688
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استفاده خوب و درست از هوش مصنوعی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390687
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390687_1780264788.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حسین طاهری، مداح :
+اگه دارین مذاکره می‌کنید به ماهم بگین که حداقل تکلیف خودمونو تو این دورهم جمع شدنایِ شبانه بدونیم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124067
+
+<div align="center">
+  <a href="telegram/content/alonews_124067_1780264789.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری ‌CNN اعلام کرد که ایران اکنون 50 ورودی از 69 ورودی تونلی را که توسط ایالات متحده آمریکا و اسرائیل در 18 تأسیسات موشکی زیرزمینی مورد اصابت قرار گرفته بود، باز کرده است
+
+
+🔴تصویر متعلق به یک پایگاه موشکی در دزفول است که چهار ورودی از پنج ورودی آن باز شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124065
+
+<div align="center">
+  <a href="telegram/content/alonews_124065_1780264789.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رژه روز اسرائیل در نیویورک
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124064
+
+<div align="center">
+  <a href="telegram/content/alonews_124064_1780264790.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این 2 دقیقه رو حتما یه جا سیو کنین و یا بفرستین پیوی رفیقتون که گمش نکنین! هر بار این کلیپ رو باز کنین مو به تنتون سیخ میشه که طی این چند سال چه اتفاقی افتاده!
+
+[@AloTweet]
+</div>
+
+## alonews — post 124063
+
+<div align="center">
+  <a href="telegram/content/alonews_124063_1780264790.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مسعود پیاهو، کسی که ویدیوی مرد نشسته مقابل موتوسواران یگان‌ویژه در خیابان جمهوری تهران را منتشر کرد، به ۱۰ سال زندان محکوم شد.
+
+
+🔴ویدیوی این مرد که در دومین روز اعتراضات دی‌ماه ۱۴۰۴ منتشر شد، به سرعت وایرال و به یکی از نمادهای اعتراضات تبدیل شد.
+
+
+🤔دم از عدل علی میزنن ولی به معاویه گفتن زکی
+
+
+✅@AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 00:29
 ---
 
